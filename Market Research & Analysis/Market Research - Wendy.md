@@ -1,4 +1,4 @@
-# Market Research - Wendi
+# Market Research - Wendy
 
 ## Business Model Research (10.10 - 10.21)
 
